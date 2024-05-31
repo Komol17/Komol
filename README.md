@@ -1,0 +1,2 @@
+# Komol
+yoqollarin
